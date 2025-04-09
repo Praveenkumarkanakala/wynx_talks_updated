@@ -1,1 +1,0 @@
-# wynx_talks_updated
